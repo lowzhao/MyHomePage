@@ -1,2 +1,2 @@
 # MyHomePage
-Domain is setting, wait to see my website. LOL
+I am finding a new domain for my homepage now, wait to see my website. LOL
